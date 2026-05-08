@@ -1,4 +1,4 @@
-
+Experience ultimate mining tycoon like never before with ultimate mining tycoon secret Scripts, the #1 Script. Includes no clip and auto-heal for
 
 
 
